@@ -1,2 +1,2 @@
 # Firence
-sub-personal using ai drain intelligents facto.
+sub-persona using AI brain intelligents(such as fromts,history e. g.) database facto.
